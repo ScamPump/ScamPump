@@ -12,3 +12,15 @@
 - 📫 How to reach me: scampumptoken@gmail.com
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I like turtles. 
+
+Twitter
+https://twitter.com/ScamPumpToken
+
+Telegram
+https://t.me/scampumpbnb
+
+Discord
+https://discord.gg/4Nh29XjyBH
+
+Github
+https://github.com/ScamPump/ScamPump
